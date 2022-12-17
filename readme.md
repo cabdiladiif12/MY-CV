@@ -33,6 +33,10 @@ This program is about my data or my cv so I want everyone who wants this program
 |Abdiladhif|wiilkacida97@gmail.com|Mogdisho|
 
 
+the result is here
+
+                                                      https://cabdiladiif12.github.io/MY-CV/
+
 How do you see this preparation?.......
 I need your comment....
 
